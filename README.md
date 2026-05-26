@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LECA830617MDFDNR04
+LECA830617MDFDNR04
